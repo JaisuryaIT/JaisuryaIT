@@ -36,7 +36,7 @@ I am eager to connect with fellow developers, industry professionals, and tech e
 
 📧 **[Mail me](mailto:jaisuryaitofficial@gmail.com)**  
 📍 **[Salem, Tamil Nadu, India](https://maps.app.goo.gl/xWXHmQJFwi8YH2H66)**  
-🐙 **[GitHub:](https://github.com/JaisuryaIT)**  
+🐙 **[Works](https://github.com/JaisuryaIT?tab=repositories)**  
 💼 **[LinkedIn](https://www.linkedin.com/in/jaisurya-u-k)**
 
 
